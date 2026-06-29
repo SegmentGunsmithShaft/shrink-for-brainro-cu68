@@ -1,4 +1,4 @@
-
+Experience shrink for brainrots like never before with shrink for brainrots Scripts vip, the #1 Script. Includes auto-farm and no clip for unbeatable
 
 
 
